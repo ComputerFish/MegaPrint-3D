@@ -6,4 +6,4 @@ This project was a passion project born out of necessity. I have various other p
 I continue to maintain and update it with the most recent FDM printer technology. In the future, I plan to build a laser-powered metal 3D printer for high-stress structural parts.
 
 
-![alt text](https://i.imgur.com/UQZfqiRh.jpg)
+![alt text](https://i.imgur.com/UQZfqiRl.jpg)
