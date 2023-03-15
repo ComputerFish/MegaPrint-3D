@@ -7,3 +7,12 @@ I continue to maintain and update it with the most recent FDM printer technology
 
 
 ![alt text](https://i.imgur.com/UQZfqiRl.jpg)
+![alt text](https://i.imgur.com/e551081l.jpg)
+![alt text](https://i.imgur.com/feE0ZByl.jpg)
+![alt text](https://i.imgur.com/Wuj6zYAl.jpg)
+![alt text](https://i.imgur.com/9SuHvOzl.jpg)
+![alt text](https://i.imgur.com/Iw2gTSGl.jpg)
+![alt text](https://i.imgur.com/nlg7EFil.jpg)
+![alt text](https://i.imgur.com/2x5tlLPl.jpg)
+![alt text](https://i.imgur.com/LFQiStXl.jpg)
+![alt text](https://i.imgur.com/yUfCrAfl.jpg)
